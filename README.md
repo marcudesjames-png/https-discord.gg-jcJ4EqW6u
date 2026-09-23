@@ -1,1 +1,1 @@
-# https-discord.gg-jcJ4EqW6u
+https://tinyurl.com/SYNNER-PICKS# https-discord.gg-jcJ4EqW6u
