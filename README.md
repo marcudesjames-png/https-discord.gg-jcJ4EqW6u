@@ -1,1 +1,1 @@
-https://tinyurl.com/SYNNER# https-discord.gg-jcJ4EqW6u
+https://tinyurl.com/syn# https-discord.gg-jcJ4EqW6u
